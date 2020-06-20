@@ -1,0 +1,1 @@
+Slinkee is a trademark of Kimchi Lee a.k.a. Christine Louise Lee.
